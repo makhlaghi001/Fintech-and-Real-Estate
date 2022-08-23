@@ -11,7 +11,7 @@ Cadre was incorporated in 2014, in New York, United States.
 
 ### Who are the founders of the company?
 
-The primary finders are Ryan Williams (CEO and cofounder), as well as the Kushner brothers, Jarrod and Joshua Kushner. 
+The primary founders are Ryan Williams (CEO and cofounder), as well as the Kushner brothers, Jarrod and Joshua Kushner. 
 
 ### How did the idea for the company (or project) come about?
 <br>
