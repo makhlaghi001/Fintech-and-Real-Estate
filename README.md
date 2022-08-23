@@ -232,6 +232,8 @@ https://www.forbes.com/sites/antoinegara/2021/02/02/fintech-cadre-launches-new-4
 
 https://edition.cnn.com/2019/05/20/investing/ryan-williams-cadre-real-estate/index.html
 
+https://cadre.com/insights/new-fundamentals-technology-at-cadre/
+
 
 
 
