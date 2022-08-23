@@ -33,9 +33,11 @@ In an article published by PENTA, explains, how Cadre thus far has closed on a n
 Real Estate, as an industry, has always been very traditional and with a few changes to its infrastructure through out the years. As years have gone by technology as evolved within the financial sector. Since the emergence of fintech many organizations and industries have shifted their focus on fintech and its role within today’s major financial establishments. This is the same now for real estate. In real estate there has always been problems around transparency and fees. During the interview with PENTA, Williams explains how Cadres has been able to scale back on fees which is not the case with their private counterparts. Williams goes to say “Unlike a traditional private-equity real estate fund, which charges two levels of fees at the fund company level and the real-estate operating company level Cadre can cut out the fund level fees because it has automated many of the firm’s processes. He then breaks down the fees that are charged by Cadre. Investors pay an annual management fee of 1.5%, an administration fee of 0.5% a year for those with up to US$1 million in assets invested (those with assets between US$1 million and US$10 million invested pay 0.25%), and a one-time commitment fee of 3.5% that is reduced for higher levels of assets invested, says Williams. through this strategy and technology Cadre has been able to provide much more level investing environment and opportunities for all its investors.  
 
 <br>
+
 Recently Cadre introduced a secondary Market. In a nutshell a secondary market, provides an opportunity for existing and a chance for a new accredit investor to buy in. according to Cadre, "The Cadre Secondary Market matches interested buyers of commercial real estate with sellers looking to exit their positions. For existing investors, a secondary sale may offer opportunities to liquidate earlier than the usual CRE investment timeline. The secondary market is currently available to accredited investors seeking access to Cadre’s deal-by-deal investment platform, and is expected to eventually be available to trade shares of the Cadre Direct Access Fund. While liquidity is based on marketplace dynamics and is not guaranteed, our goal is to democratize access to the asset class by making opportunities for liquidity available to a greater number of investors. All investors are encouraged to review the offering materials when making an investment for specifics on how the marketplace operates."
 
 <br>
+
 This in turn creates further opportunities for investors to get into an existing deals which are no longer available. This makes Cadre the very first firm to leverage technology in order to provide a fully automated buy and sell model, that will provide liquidation of your current stake in the investment, in a short period of time such as buying and selling stocks.   
 
 <br>
@@ -43,6 +45,7 @@ This in turn creates further opportunities for investors to get into an existing
 ### Who is the company's intended customer?  Is there any information about the market size of this set of customers? What solution does this company offer that their competitors do not or cannot offer? (What is the unfair advantage they utilize?) 
 
 <br>
+
 The commercial real estate investment industry is a staggering $16 trillion dollar industry, within united states alone. However, this has been mostly available to the higher tier and bigger players. Cadre has been able to modify that spectrum’, and has provided equal level across the board, so that smaller investors can as well have a piece of a thriving commercial real estate investment. With the assistance of technology, Cadre has been able to position itself as much more attractive investment firm by providing and creating investment opportunities via lower capital requirements with only a few clicks.  
 
 <br>
