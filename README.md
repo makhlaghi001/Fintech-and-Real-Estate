@@ -35,6 +35,7 @@ Real Estate, as an industry, has always been very traditional and with a few cha
 
 <br>
 
+
 Recently Cadre introduced a secondary Market. In a nutshell a secondary market, provides an opportunity for existing and a chance for a new accredit investor to buy in. according to Cadre, "The Cadre Secondary Market matches interested buyers of commercial real estate with sellers looking to exit their positions. For existing investors, a secondary sale may offer opportunities to liquidate earlier than the usual CRE investment timeline. The secondary market is currently available to accredited investors seeking access to Cadre’s deal-by-deal investment platform, and is expected to eventually be available to trade shares of the Cadre Direct Access Fund. While liquidity is based on marketplace dynamics and is not guaranteed, our goal is to democratize access to the asset class by making opportunities for liquidity available to a greater number of investors. All investors are encouraged to review the offering materials when making an investment for specifics on how the marketplace operates."
 
 <br>
