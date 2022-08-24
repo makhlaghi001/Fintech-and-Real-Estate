@@ -20,7 +20,9 @@ Ryan Williams has been involved with real estate investment since the early univ
 <br>
 
 ### How is the company funded? How much funding have they received?
+
 <br>
+
 Cadre has gone through two stages of funding totaling to $400 million. This funding has come through various major firms such as Goldman Sachs, Ford foundation, Anderseen Horwitz, SL Green Realty and as well as Founders Fund and General Catalysts. According to an interview article published by Forbes, Now, Williams is back on the offensive, launching a new $400 million real estate fund oriented to individual investors, financial advisors, and institutions. The Cadre Direct Access Fund is an attempt by Williams to push Cadre’s real estate technology investment platform closer to smaller investors and advisors looking to invest directly in real estate deals at reasonable costs but maintain good liquidity.
 
 <br>
