@@ -67,7 +67,7 @@ Cadre has been able to establish itself with some of the largest firms from earl
 
 <br>
 
-Another advantage that Cadre has over their competitors, its Ryan’s cofounders, the Kushner brothers, Jarrod and Joshua Kushner. The partnership with the Kushner brothers from earlier on, validated Cadre as major opportunity withing in the real estate realm. Kushner was an early Cadre investor. He owns a stake in the firm worth up to $50 million, according to Kushner's 2018 federal financial disclosure form. Also Thrive Capital, a venture firm owned by Joshua Kushner, was another early backer. Williams, in an interview with CNN Business Insider, goes to say, "Jared was one of the key people early on. And his contributions were critical,". Thus, providing Cadre with the jump start advantage, over their competitors.
+Another advantage that Cadre has over their competitors, its Ryan’s cofounders, the Kushner brothers, Jarrod and Joshua Kushner. The partnership with the Kushner brothers from earlier on, validated Cadre as major opportunity within in the real estate realm. Kushner was an early Cadre investor. He owns a stake in the firm worth up to $50 million, according to Kushner's 2018 federal financial disclosure form. Also Thrive Capital, a venture firm owned by Joshua Kushner, was another early backer. Williams, in an interview with CNN Business Insider, goes to say, "Jared was one of the key people early on. And his contributions were critical,". Thus, providing Cadre with the jump start advantage, over their competitors.
 
 <br>
 
