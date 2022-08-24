@@ -174,7 +174,7 @@ Some of the other companies within the real estate realm which have disturbed th
 
 <br>
 
-One component that sets Cadre aside from its counter parts is responsible investing. Cadre has been able to successfully attain this through capital and investment. In an interview with Abby Shultz, a columnist for PENTA, William says “Leveraging our [operating] partner ecosystem and network is one of the best ways to invest in those who are underserved and marginalized. Real estate operators and developers can create wealth through their operations, but these companies don’t tend to have a lot of gender or ethnic diversity”. 
+One component that sets Cadre aside from its counter parts is responsible investing. Cadre has been able to successfully attain this through capital and investment. In an interview with Abby Shultz, a columnist for PENTA, William says “Leveraging our operating partner ecosystem and network is one of the best ways to invest in those who are underserved and marginalized. Real estate operators and developers can create wealth through their operations, but these companies don’t tend to have a lot of gender or ethnic diversity”. 
 
 <br>
 
