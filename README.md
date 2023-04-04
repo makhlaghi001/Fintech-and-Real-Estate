@@ -1,5 +1,5 @@
-# Homework_1
- # Fintech and Real Estate
+
+# Fintech and Real Estate
 ## Overview  and Origin
 
 ### Name of the company?
